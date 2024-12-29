@@ -1,6 +1,6 @@
 # Who am I?
 
-My name is Berat Kansız. I'm using the "Delete" username in the software area. I continue to work to improve myself.
+My name is Berat. I'm using the "Delete" username in the software area. I continue to work to improve myself.
 
 ## Youtube
 
